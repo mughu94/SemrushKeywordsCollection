@@ -1,3 +1,3 @@
 Semrush Guru 
 
-not filtered yet .
+original from semrush , and not filtered yet .
